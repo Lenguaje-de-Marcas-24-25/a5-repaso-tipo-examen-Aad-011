@@ -1,1 +1,0 @@
-[TIPO DE EXÁMEN](El%20Grande%20es%20el%20Capitan.xml)
